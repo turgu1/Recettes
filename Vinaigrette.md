@@ -1,4 +1,4 @@
-# Vinaigrette
+# Vinaigrette pour salade de choux
 
 - 1 tasse mayonnaise
 - 2/3 tasse huile végétale
