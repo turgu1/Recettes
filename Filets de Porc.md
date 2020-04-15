@@ -11,4 +11,4 @@
 1. Frotter les filets de porc avec le paprika fumée.
 2. Faire revenir les filets dans l'huile végétale.
 3. Mettre au four dans plat avec le miel et la moutarde de Dijon.
-4. Faire cuire 15 à 20 minutes à 400F.
+4. Faire cuire 15 à 20 minutes à 400°F.

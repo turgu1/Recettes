@@ -13,4 +13,4 @@
 2. Ajouter le lait bouilli et le beurre.
 3. Brasser à peine
 4. Préparer le plat avec de la farine et du beurre
-5. Cuire au four à 350F
+5. Cuire au four à 350°F

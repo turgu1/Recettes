@@ -13,4 +13,4 @@
 2. Mélanger la farine et l'eau: battre au batteur à oeufs jusqu'à mélange homogène. Ajouter une petite quantité de sirop bouillant à la farine délayée: bien mélanger puis verser la farine réchauffée dans la casserole. Ajouter la crème et faire bouillir 5 minutes en remuant constamment.
 3. Retirer du feu. Ajouter le beurre et les noix. Laisser tiédir.
 4. Remplir l'abaisse de fond de la graniture. Couvrir de l'abaisse de dessus tel qu'indiqué dans la recette de pâte.
-5. Cuire à 400F, environ 35 minutes. Servir avec de la crème fouettée non sucrée.
+5. Cuire à 400°F, environ 35 minutes. Servir avec de la crème fouettée non sucrée.
