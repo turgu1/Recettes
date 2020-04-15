@@ -2,7 +2,7 @@
 
 - 1 tasse de ketchup au tomate
 - 1 tasse d'huile
-- 1/2 tasse de sirop d''erable
+- 1/2 tasse de sirop d'érable
 - 1 c.thé moutarde sèche
 - 1 c.thé jus de citron
 - 1 échalotte découpée finement

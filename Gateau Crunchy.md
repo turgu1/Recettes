@@ -1,5 +1,6 @@
 # Gâteau Crunchy
 
+- 4 barres de chocolat Crunchy
 - 3 blancs d'oeuf
 - 3/4 tasse de sucre
 - 1 c.thé vinaigre
