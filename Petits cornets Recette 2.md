@@ -1,4 +1,4 @@
-# Petits cornets - Recette 2
+# Petits cornets - Recette #2
 
 Préparation pour 64 mini-cornets
 
