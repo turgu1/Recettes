@@ -6,9 +6,9 @@
 - Sel, poivre
 - 1 c.thé de paprika fumée
 
-```
-Frotter les filets de porc avec le parprica fumée
-Faire revenir les filets dans l'huile végétale
-Mettre au four dans plat avec le miel et la moutarde de Dijon
-Faire cuire 15 à 20 minutes à 400F
-```
+## Préparation:
+
+1. Frotter les filets de porc avec le parprica fumée.
+2. Faire revenir les filets dans l'huile végétale.
+3. Mettre au four dans plat avec le miel et la moutarde de Dijon.
+4. Faire cuire 15 à 20 minutes à 400F.
