@@ -5,7 +5,7 @@
 - 1 tasse farine
 - 1 c.thé poudre à pâte
 - 1/2 tasse lait bouilli
-- beure (qtée équivalente à un jaude d'oeuf)
+- beurre (qtée équivalente à un jaune d'oeuf)
 
 ## Préparation:
 

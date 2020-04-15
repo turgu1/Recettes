@@ -1,13 +1,13 @@
 # Marinade grecque pour poulet (style Casa Grecque)
 
-- 3 cuillères à table combles mayonnaise
-- 2 cuillères à table origan
+- 3 c.table combles mayonnaise
+- 2 c.table origan
 - 1/4 tasse huile légère
-- 3 cuillères à table jus de citron
-- 1 cuillère à thé poudre d'oignon
-- 1 cuillère à thé ail haché
-- 1 cuillère à thé moutarde de Dijon
-- 1 cuillère à thé base de bouillon de poulet
+- 3 c.table jus de citron
+- 1 c.thé poudre d'oignon
+- 1 c.thé ail haché
+- 1 c.thé moutarde de Dijon
+- 1 c.thé base de bouillon de poulet
 - sel et poivre
 
 ## Préparation:
