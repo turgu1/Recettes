@@ -5,5 +5,5 @@
 
 ## Cuisson:
 
-- Sur un papier parchemin, grille au centre du four.
-- Cuire à 350°F pendant 12 minutes.
+1. Sur un papier parchemin, grille au centre du four.
+2. Cuire à 350°F pendant 12 minutes.
