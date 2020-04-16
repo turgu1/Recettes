@@ -4,11 +4,11 @@
 - 1 c.table poudre à pâte
 - 1/2 c.thé sel
 
-- 1/4 tasse beurre ou margarine
-- 1/2 tasse sucre
-- 1 oeuf
-- 3/4 tasse lait
-- 1 c.thé vanille
+* 1/4 tasse beurre ou margarine
+* 1/2 tasse sucre
+* 1 oeuf
+* 3/4 tasse lait
+* 1 c.thé vanille
   
 - 1 tasse bleuets frais ou gelés
 - 1 c.table farine
