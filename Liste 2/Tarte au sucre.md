@@ -1,4 +1,4 @@
-# Tarte aux sucres
+# Tarte aux sucres (Jonathan)
 
 - 4 tasse cassonade
 - 2 boîte lait Carnation
