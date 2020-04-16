@@ -1,4 +1,4 @@
-# Filet de porc à Jean-Marc
+# Filets de porc à Jean-Marc
 
 - 1/2 tasse de miel
 - 1/4 tasse moutarde de Dijon
