@@ -10,4 +10,3 @@
 2. Ajouter les biscuits Ritz que l'on écrase au préalable.
 3. Étendre sur une tôle à biscuits
 4. Faire cuire 10 minutes à 300°F
-   

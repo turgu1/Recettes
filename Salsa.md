@@ -20,4 +20,3 @@
 3. Laisser frémir doucement ou mettre au four, à découvert, pendant environ 1 1/2 heure, jusqu'à ce que la salsa ait épaissi.
 4. Verser la salsa dans des bocaux chauds stérilisés.
 5. Donne 5 pots de 500 ml.
-

@@ -19,4 +19,3 @@
 - 1/2 tasse sucre à glacer
 - 1/2 c.thé vanille
 - 1/3 tasse cacao
-

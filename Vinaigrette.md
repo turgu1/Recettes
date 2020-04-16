@@ -5,4 +5,3 @@
 - 1/3 sucre
 - 1/3 vinaigre
 - sel, poivre
-  

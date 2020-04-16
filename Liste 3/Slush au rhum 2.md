@@ -12,4 +12,3 @@
 1. Infuser le thé dans l'eau chaude
 2. Incorporer tous les autres ingrédients.
 3. Placer au congélateur.
-   

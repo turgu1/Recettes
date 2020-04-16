@@ -12,4 +12,3 @@
 2. Faire bouillir pendant 5 minutes. Retirer du feu.
 3. Ajouter le biscuit graham émietté.
 4. Dans un plat 8x8, ajouter la préparation entre 2 rangs de biscuits graham.
-   

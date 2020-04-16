@@ -29,4 +29,3 @@
 
 1. Dans un bain marie, mélanger les ingrédients et battre jusqu'à ce qu'il fasse des pics.
 2. Glacer le gâteau refroidi et décorer avec des noix, amandes ou cerises.
-   

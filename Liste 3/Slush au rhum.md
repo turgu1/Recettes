@@ -5,4 +5,3 @@
 - 26 onces rhum
 - 2 tasses sucre
 - 6 tasses eau
-  

@@ -19,4 +19,4 @@
 8. Mettre dans les moules. Couvrir et faire lever pendant une autre heure. 
 9. Préchauffer le four à 375°F (190°C). Mettre la grille au milieu. 
 10. Faire cuire pendant 30 à 35 minutes. Laissez reposer. 
-11. Et voilà! Mangez le premier et le deuxième se congèle très bien 
+11. Et voilà! Mangez le premier et le deuxième se congèle très bien.

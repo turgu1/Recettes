@@ -13,4 +13,3 @@ Préparation pour 72 petits cornets
 1. Mettre au micro-ondes tous les ingrédients SAUF les guimauves. À quatres reprises: 2 minutes de chauffe, brasser à chaque reprise.
 2. Retirer du micro-onde, ajouter les guimauves et brasser jusqu'à ce que les guimauves soient fondues.
 3. Disposer dans les cornets.
-

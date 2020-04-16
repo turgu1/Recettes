@@ -13,4 +13,3 @@
 
 1. Mélanger l'oeuf, le sucre, le beurre fondue et le lait.
 2. Ajouter les autres ingrédients.
-

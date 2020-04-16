@@ -8,4 +8,3 @@
 - 2 à 3 gouttes sauce Tabasco
 - sel, poivre
 - pincette de thym au goût
-

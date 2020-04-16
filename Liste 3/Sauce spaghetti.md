@@ -15,4 +15,3 @@
 - 3 feuilles de laurier
 - 1/2 c.thé sel
 - 1/2 c.thé poivre
-  

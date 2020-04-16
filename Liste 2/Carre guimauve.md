@@ -14,4 +14,3 @@
 3. Une fois la crème fouetté préparée, incorporer dans le mélange.
 4. Faire des étages avec les biscuits grahams.
 5. Ajouter du coconut pour décorer.
-   

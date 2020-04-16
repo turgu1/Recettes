@@ -9,4 +9,3 @@
 - 3/4 tasse ketchup
 - 1/2 tasse huile d'olive
 - 1/4 tasse vinaigre
-  

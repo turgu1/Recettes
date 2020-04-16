@@ -15,4 +15,3 @@
 2. Incorporer la farine l'aide d'un tamis
 3. Ajouter la poudre à pâte et le sel
 4. Ajouter le lait
-

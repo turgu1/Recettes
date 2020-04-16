@@ -21,4 +21,3 @@
 4. Mélanger les bleuets avec la c.table de farine. Incorporer délicatement dans la pâte.
 5. Remplir au 3/4 16 moules à muffins.
 6. Cuire au four à 400°F environ 25 minutes.
-

@@ -14,4 +14,3 @@
 ## Cuisson:
 
 - Faire bouillir pendant 2 heures
-  

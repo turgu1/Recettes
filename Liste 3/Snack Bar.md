@@ -14,4 +14,3 @@
 3. Retirer du feu.
 4. Mélanger le Spécial K.
 5. Recouvrir de chocolat fondu.
-

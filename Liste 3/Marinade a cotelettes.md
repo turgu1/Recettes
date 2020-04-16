@@ -6,4 +6,3 @@
 - 1/4 c.thé poudre d'ail
 - 1/4 c.thé gingembre
 - sel, poivre
-

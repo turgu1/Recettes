@@ -12,4 +12,3 @@
 1. Faire des incisions dans les filets de porc.
 2. Laisser mariner 15-20 minutes à température de la pièce.
 3. Cuire au four à 350°F, 25 à 30 minutes.
-

@@ -7,4 +7,3 @@
 - 2 livres sucre
 - 1 pinte vinaigre
 - épices à marinades
-

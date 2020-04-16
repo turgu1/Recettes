@@ -13,4 +13,3 @@
 
 1. Mélanger tous les ingrédients.
 2. Servir avec crudités.
-

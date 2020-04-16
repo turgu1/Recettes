@@ -11,4 +11,4 @@
 
 ## Sans mayonnaise:
 
-- beurre, oignon, sauce chili, sauce soya
+- beurre, oignon, sauce chili, sauce soya.

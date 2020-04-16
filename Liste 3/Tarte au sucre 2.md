@@ -14,4 +14,3 @@
 3. Retirer du feu, ajouter l'oeuf et la vanille
 4. Disposer dans la base de tarte.
 5. Cuire à 400°F pendant 35 minutes.
-   

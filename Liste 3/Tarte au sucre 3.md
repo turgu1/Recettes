@@ -11,4 +11,4 @@
 
 1. Mélanger la cassonade, le sucre et la crème.
 2. Mijoter pendant 15 minutes à feux doux.
-3. Retirer. Ajouter le lait et le sirop de maïs
+3. Retirer. Ajouter le lait et le sirop de maïs.

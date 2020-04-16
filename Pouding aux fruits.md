@@ -22,4 +22,4 @@
 3. Mettre la sauce dans un plat graisser.
 2. Mélanger les ingrédients du gateau dans un bol.
 4. Verser le mélange à gateau doucement sur la sauce en surface.
-5. Cuire à 375°F, 45 à 50 minutes
+5. Cuire à 375°F, 45 à 50 minutes.

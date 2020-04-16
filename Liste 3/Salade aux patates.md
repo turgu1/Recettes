@@ -4,4 +4,3 @@
 - Oignons
 - Sel, poivre
 - Mayonnaise
-  
