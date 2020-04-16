@@ -1,8 +1,8 @@
 # Pouding aux fruits
 
-- 2 tasses de fruits
-- 3/4 tasse de sucre
-- 2 c.thé farine
+* 2 tasses de fruits
+* 3/4 tasse de sucre
+* 2 c.thé farine
 
 - 1/4 tasse margarine
 - 1 oeuf

@@ -1,6 +1,6 @@
 # Pain de ménage de nos grand-mères
 
-- 2 1/2 tasses (625 ml) d’eau tiède  
+- 2 1/2 tasses (625 ml) d’eau tiède
 - 1 c.soupe de levure active sèche 
 - 1 c.soupe de sucre 
 - 6 tasses (1500 ml) de farine tout usage 
