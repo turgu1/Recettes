@@ -12,5 +12,3 @@
   + 3 minutes
   + 3 x 2 minutes
   + 3 minutes
-  + 2 minutes
-  + 30 secondes
