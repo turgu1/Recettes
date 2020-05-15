@@ -1,4 +1,4 @@
-# Croissants cochon (Line Pagé)
+# Croissants cochons (Line Pagé)
 
 - 1 gros rouleau de croissant Pillsbury
 - 1 1/2 tasse sucre d'érable ou cassonnade
