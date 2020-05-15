@@ -8,6 +8,10 @@
 
 ## Préparation
 
-- Remplir la mijoteus d'eau (jusqu'à 1 1/2 po du rebord)
-- Cuire à basse température pendant 10 heures
+1. Remplir la mijoteus d'eau (jusqu'à 1 1/2 po du rebord)
+2. Cuire à basse température pendant 10 heures
+
+## Option
+
 - Il reste environ 9 tasses de liquide. Faire cuire les pommes de terre dans le liquide.
+- 
