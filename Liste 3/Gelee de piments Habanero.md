@@ -12,7 +12,7 @@ Une gelée dorée translucide dans laquelle on voit des morceaux de piment. Serv
 
 - Dans une grande casserole en acier inoxidable, mélanger les abricots et le vinaigre. Couvrir et laisser reposer au moins 4 heures.
 - Ajouter l'oignon rouge, le poivron, le piment et le sucre. À feu vif et en remuant sans cesse, porter à ébullition assez forte pour qu'elle se maintienne même en remuant. Laisser bouillir fort 1 minute en remuant sans cesse. Retirer du feu, écumer et brasser pour répartir les solides. 
-- Ajouter la pectine. Replacer sur le feu et laisser bouillir une autre minute. Retirer du feu et écumer à nouveau.
+- Ajouter la pectine. Replacer sur le feu et laisser bouillir une autre minute. Retirer du feu.
 - Loucher dans des bocaux chauds selon les directives du dépliant, en laissant un espace libre de 0,5 cm (1/4 po). Traiter les bocaux à la chaleur (les faire bouillir) 10 minutes dans une marmite à l'eau bouillante. Laisser refroidir et vérifier les sceaux. Garder dans un endroit sombre et frais jusqu'à 1 an.
 
 Donne 6 bocaux de 125 ml ou 3 bocaux de 250 ml.
