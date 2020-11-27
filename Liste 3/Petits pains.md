@@ -17,7 +17,7 @@
 
 - 1/2 tase d'eau tiède
 - 1 c.thé sucre
-- 2 sachets de levure (4 1/2 c.table)
+- 2 sachets de levure (4 1/2 c.thé)
 
 ## Préparation:
 
