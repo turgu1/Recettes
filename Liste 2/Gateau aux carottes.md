@@ -19,3 +19,4 @@
 ## Cuisson:
 
 - 300°F pendant 1 heure
+- Recette séparée en deux moules: 35 minutes.
