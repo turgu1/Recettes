@@ -6,7 +6,7 @@
 - 1 1/2 c.thé sel
 - 1 1/2 c.thé soda
 - 1 1/3 c.thé poude à pâte
-- 1 1/2 c.thé canelle
+- 1/4 à 1/2 c.thé canelle
 - 1 1/3 tasse farine
 - 2 tasses carottes
 
